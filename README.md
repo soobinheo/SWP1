@@ -1,2 +1,2 @@
-Soobin
-20201320
+Soobin 20201320
+Kookmin Univ. SW
